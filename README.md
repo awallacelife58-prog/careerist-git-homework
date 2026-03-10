@@ -1,1 +1,0 @@
-# careerist-git-homework
